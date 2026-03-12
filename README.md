@@ -2,7 +2,7 @@
 
 
   ![Video Guru_20260312_140529939](https://github.com/user-attachments/assets/7bacfd58-b58f-42c5-b1bd-919022bfc582)  
-https://pin.it/1d6NhuXiC
+
   
 _____________________________________________________
 
