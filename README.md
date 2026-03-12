@@ -1,7 +1,7 @@
 ## 🍓💻 Olá mundo! Eu sou a Larissa ✨🍓 
 
 
-![Video Guru_20260312_140529939](https://github.com/user-attachments/assets/da2775e7-6ed1-4634-8ff7-b5cb3294aa6f)
+  ![Video Guru_20260312_140529939](https://github.com/user-attachments/assets/7bacfd58-b58f-42c5-b1bd-919022bfc582)  
 
   
 _____________________________________________________
